@@ -1,1 +1,1 @@
-# dekopinda-ogan-komering-ulu-timur
+# dekopinda-karanganyar
